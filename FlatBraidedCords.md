@@ -1,6 +1,6 @@
 The Timeless Appeal of Flat Braided Leather Cords in Modern Jewelry Design
 
-When it comes to crafting jewelry that’s both trendy and timeless,[ flat braided leather cords]([url](https://cordscraft.com/)) have carved a special place in the world of handmade creations. These cords aren’t just about durability—they bring a raw, natural, and effortlessly stylish vibe that works for bracelets, necklaces, chokers, and even fashion accessories like belts or keychains.
+When it comes to crafting jewelry that’s both trendy and timeless, [flat braided leather cords]([url](https://creative-leathers.com/)) have carved a special place in the world of handmade creations. These cords aren’t just about durability—they bring a raw, natural, and effortlessly stylish vibe that works for bracelets, necklaces, chokers, and even fashion accessories like belts or keychains.
 
 What Are Flat Braided Leather Cords?
 
@@ -48,7 +48,7 @@ A little care goes a long way in keeping that sleek braided texture looking as g
 
 Where to Find the Best Flat Braided Leather Cords
 
-If you’re looking for premium-quality leather cords, [Cordscraft]([url](https://cordscraft.com/)) offers an excellent range of flat braided leather cords in multiple colors, widths, and finishes. Their products are known for high craftsmanship, consistency, and quality leather that stands the test of time.
+If you’re looking for premium-quality leather cords, [Creative Leathers]([url](https://creative-leathers.com/)) offers an excellent range of flat braided leather cords in multiple colors, widths, and finishes. Their products are known for high craftsmanship, consistency, and quality leather that stands the test of time.
 
 Whether you’re a professional jewelry maker or just starting your crafting journey, these cords give your designs a professional and polished edge.
 
@@ -56,4 +56,4 @@ Final Thoughts
 
 Flat braided leather cords are not just a material—they’re a statement of craftsmanship and style. Their earthy texture, flexibility, and long-lasting nature make them an essential component for anyone passionate about handmade jewelry or accessories.
 
-So, if you’re planning your next DIY jewelry project, try incorporating [flat braided leather cords]([url](https://cordscraft.com/))—you’ll fall in love with how effortlessly they elevate your creations!
+So, if you’re planning your next DIY jewelry project, try incorporating [flat braided leather cords]([url](https://creative-leathers.com/))—you’ll fall in love with how effortlessly they elevate your creations!
